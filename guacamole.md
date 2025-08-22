@@ -17,7 +17,3 @@
 3. Add avocados and, using a sturdy whisk, mash and stir mixture until well combined with some 1/4- to 1/2-inch chunks of avocado remaining.
 4. Stir in tomato and cilantro. Season with salt and up to an additional 1 1/2 teaspoons lime juice to taste.
 5. Serve.
-
-## Source
-
-[Classic Guacamole | America's Test Kitchen Recipe](https://www.americastestkitchen.com/recipes/9627-classic-guacamole)
