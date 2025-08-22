@@ -6,7 +6,7 @@
 * 1 serrano chile, stemmed, seeded, and minced
 * 1 teaspoon Kosher salt
 * 1/4 teaspoon grated lime zest plus 1 1/2–2 tablespoons juice
-* 3 ripe avocados, halved, pitted, and cut into 1/2-inch pieceshttps://github.com/mundorfd
+* 3 ripe avocados, halved, pitted, and cut into 1/2-inch pieces
 * 1 plum tomato, cored, seeded, and cut into 1/8-inch dice
 * 2 tablespoons chopped fresh cilantro
 
