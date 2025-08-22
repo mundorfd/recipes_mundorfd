@@ -12,10 +12,10 @@
 
 ## Instructions
 
-1. Place onion, serrano, 1 teaspoon salt, and lime zest on cutting board and chop until very finely minced.
+1. Place onion, serrano, 1 teaspoon salt, and lime zest on a cutting board and chop until very finely minced.
 2. Transfer onion mixture to medium bowl and stir in 1 1/2 tablespoons lime juice.
-3. Add avocados and, using sturdy whisk, mash and stir mixture until well combined with some 1/4- to 1/2-inch chunks of avocado remaining.
-4. Stir in tomato and cilantro. Season with salt and up to additional 1 1/2 teaspoons lime juice to taste.
+3. Add avocados and, using a sturdy whisk, mash and stir mixture until well combined with some 1/4- to 1/2-inch chunks of avocado remaining.
+4. Stir in tomato and cilantro. Season with salt and up to an additional 1 1/2 teaspoons lime juice to taste.
 5. Serve.
 
 ## Source
